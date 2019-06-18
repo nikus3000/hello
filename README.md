@@ -1,0 +1,1 @@
+Tak tak, ten w lusztrze to niestety ja
